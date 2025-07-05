@@ -1,1 +1,1 @@
-# Honors-Rewards
+# Academic Honors-Rewards
